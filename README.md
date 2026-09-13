@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img alt="rounded-in-photoretrica" src="https://github.com/user-attachments/assets/32c3f9b8-777b-4083-ac8e-ba9e3d755540" width="375"><br>
+  <img alt="rounded-in-photoretrica" src="https://file.garden/aqaf4HgSLv4nanDc/rounded-in-photoretrica.png" width="375"><br>
   <sup><sub>cr <a href="https://x.com/CBgwa2/status/2061786309308641389?s=20">@CBgwa2</a></sub></sup> <br>
 </p>
 
