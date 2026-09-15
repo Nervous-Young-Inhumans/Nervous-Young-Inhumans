@@ -19,7 +19,7 @@
       <br>
       <b>'CURRENT fandoms'　　　　　　　　　　　　Before interact　　　</b>　　　
       <br>
-      <sup>　　　　　Turning(!) ; MLBB ; WHA ; Eddsworld  　　　　　　  Eng isn't my native ; I'm a multi- <code>fandomer</code> and <code>shipper</code>.</sup>
+      <sup>　　　　　Turning(!) ; MLBB ; WHA ; Eddsworld ; LOL 　　　　　　  Eng isn't my native ; multi- <code>fandom</code> and <code>shipper</code>.</sup>
     </p>
   </details>
 </p>
