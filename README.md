@@ -25,5 +25,5 @@
 </p>
 
 <p align="center">
-  <sub><code>   FRIENDS <a href="https://github.com/Red-And-Dying-Evening">Sumi</a> <a href="https://github.com/mccunn-1">Vila</a> <a href="https://github.com/piechain">Jay</a>　</code></sub>
+  <sub><code>   FRIENDS <a href="https://github.com/Red-And-Dying-Evening">Yoshi</a> <a href="https://github.com/mccunn-1">Vila</a> <a href="https://github.com/piechain">Jay</a>　</code></sub>
 </p>
