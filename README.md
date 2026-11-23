@@ -1,14 +1,15 @@
 <p align="center">
-  ﹋﹌﹋
+
 </p>
 
 <p align="center">
-  <img alt="rounded-in-photoretrica" src="https://file.garden/aqaf4HgSLv4nanDc/rounded-in-photoretrica.png" width="375"><br>
-  <sup><sub>cr <a href="https://x.com/CBgwa2/status/2061786309308641389?s=20">@CBgwa2</a></sub></sup> <br>
+  <img alt="rounded-in-photoretrica" src="https://github.com/user-attachments/assets/7ab3e73e-51c3-4d64-af2a-c982960a06c5"
+ width="400"><br>
+  <sup><sub>cr <a href="https://x.com/CBgwa2/status/2061786309308641389?s=20">@_nieyh</a></sub></sup> <br>
 </p>
 
 <p align="center">
-  <code>‥　</code> 　 Fushi  　　 . 　 ⬎<br>
+  <code>‥　</code> 　 Fushi  　　.　 . 　  ↓<br>
   <sup>  ☼　<b>anyHe/him pref</b>　　Ξ　　<code>　　9teen</code></sup>
 </p>
 
@@ -17,9 +18,16 @@
     <summary><p align="center"><code> MORE ⭣ ⭣ ⭣ </code></p></summary>
     <p align="center">
       <br>
-      <b>'CURRENT fandoms'　　　　　　　　　　　　Before interact　　　</b>　　　
+      <b>　INT</b>　　
       <br>
-      <sup>　　　　　Turning(!) ; MLBB ; WHA ; Eddsworld ; LOL 　　　　　　  Eng isn't my native ; multi- <code>fandom</code> and <code>shipper</code>.</sup>
+       <sup>Valorant ,GSGW ,the100lines ,dr12v3UDG , etcc</sup> 　
+       <br>
+      <b>　　　　　Before interact　　　</b>　　　
+      <br>
+      <sup>⋆ Eng isn't my native</sup> 　
+      <br> 
+        <sup>⋆ Minors intw caution</sup>　　　　
+        <sup>⋆ No dni i block freely</sup>　
     </p>
   </details>
 </p>
